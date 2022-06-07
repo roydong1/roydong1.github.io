@@ -8,7 +8,7 @@ I'm currently a research assistant professor in Electrical and Computer Engineer
 
 ### More Information
 
-You probably can find out what I'm currently up to by checking my [Google Scholar page](https://scholar.google.com/citations?user=ozcJ9zYAAAAJ).
+You probably can find out what I've been up to lately by checking my [Google Scholar page](https://scholar.google.com/citations?user=ozcJ9zYAAAAJ).
 
 ### Contact me
 
